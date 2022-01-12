@@ -1,28 +1,52 @@
-# Vanilla Panna Cotta
+# Quick Oatmeal Pancakes
 
-Got someone you really need to impress but don't want to spend all night in the kitchen? This dessert can all be done the day before, but is sure to blow their socks off!
+My husband used to not like pancakes and absolutely hate pancake syrup until I had him try the oatmeal pancake with mango or blueberry sauce. Now he regularly asks me to make some for breakfast. Serve warm with your favorite syrup or sauce.
 
-Source: https://sortedfood.com/recipe/971
+Source: https://www.allrecipes.com/recipe/228654/quick-oatmeal-pancakes/
+
+Prep: 10 mins
+Cook: 20 mins
+Total: 30 mins
+Servings: 3
+Yield: 3 servings
 
 ## Ingredients
 
-- 3 gelatine leaves
-- 400 ml double cream
-- 1 lemon
-- 1 vanilla pod
-- 75 g icing sugar
-- 1 handful fresh strawberries
-- 1 handful fresh raspberries
-- 1 handful fresh blueberries
-- 1 glass rose wine
-- 1 tbsp sugar
-- 1 sprig fresh mint
+1 cup milk
 
-## Instructions
+⅔ cup quick-cooking oats
 
-1. Soak the gelatine leaves in a little cold water to soften. Zest the lemon and put into a pan. Half the vanilla pod and scrape out the seeds. Put both the pod and seeds into the pan with the zest.
-2. Pour ¾ of the cream into a pan and bring to the boil. Squeeze all excess water from the gelatine and whisk through the hot cream. Leave to cool.
-3. Whisk what is left of the cream and fold through the slightly cooled cream. Divide into 4 individual jelly moulds, ramekins or espresso cups and put into the fridge to set overnight.
-4. Cut up all the berries and leave to soak in the rose with a spoonful of sugar overnight.
-5. Dunk the moulds into hot water to loosen the panna cottas and turn out onto a plate.
-6. Scatter with macerated berries and garnish with a sprig of mint. Serves 4
+⅔ cup all-purpose flour
+
+2 tablespoons brown sugar
+
+1 ½ teaspoons baking powder
+
+½ teaspoon salt
+
+¼ teaspoon ground cinnamon
+
+2 eggs
+
+2 teaspoons butter, melted
+
+½ teaspoon vanilla extract
+
+¼ cup milk, or more as needed
+
+2 teaspoons butter, or as needed
+
+## Directions
+
+Step 1
+Place 1 cup milk in a microwave-safe bowl; heat in microwave until bubbling, about 2 minutes. Stir in the oats.
+
+Step 2
+Mix flour, brown sugar, baking powder, salt, and cinnamon together in a bowl. Whisk eggs, 2 teaspoons melted butter, and vanilla extract together in a separate bowl; add 1/4 cup milk. Mix oat mixture and egg mixture with flour mixture; stir to combine.
+
+Step 3
+Heat 2 teaspoons butter on a griddle or skillet over medium heat; pour about 1/3 cup batter into the hot butter. Cook pancakes until bubbles appear on top layer, about 5 minutes. Flip and cook other side until evenly browned, about 5 more minutes.
+
+Nutrition Facts
+
+Per Serving: 354 calories; protein 12.9g; carbohydrates 48.2g; fat 12.2g; cholesterol 146.5mg; sodium 762.4mg. Full Nutrition
